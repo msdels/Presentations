@@ -1,0 +1,1 @@
+This is a collection of presentations that come as is with no guarantee at all. 
